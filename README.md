@@ -1,1 +1,2 @@
 Mikaella Shelby
+shelbymi@oregonstate.edu
